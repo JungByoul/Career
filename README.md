@@ -8,5 +8,6 @@
 4. Tableau를 활용한 시각화에 강점이 있습니다.
    
 이력서와 포트폴리오 파일 첨부하였습니다.
+포트폴리오 노션 링크: https://autumn-risk-724.notion.site/Two-Page-Portfolio-30443b1b7bd281ee9425d2d0045311be?pvs=74
 
 잘하겠습니다!
